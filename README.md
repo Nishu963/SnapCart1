@@ -1,1 +1,2 @@
-# SnapCart1
+<img width="1920" height="1200" alt="Screenshot 2025-07-14 003417" src="https://github.com/user-attachments/assets/7e58a9d4-530c-488e-be94-b8c3aa1c9e62" /><img width="1920" height="1200" alt="Screenshot 2025-07-14 003405" src="https://github.com/user-attachments/assets/95e28977-aad2-4fcc-88d4-05400ef7aaa2" />
+<img width="1920" height="1200" alt="Screenshot 2025-07-14 003417" src="https://github.com/user-attachments/assets/73d876d0-3f93-4b8f-9563-8c6645e9f05d" />
